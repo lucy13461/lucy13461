@@ -1,0 +1,3 @@
+- 👋 Hi, I’m lucy
+- 👀 We want to work together on fuel consumption sensors
+- 📫 How to reach me :2991577355@qq.com
